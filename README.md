@@ -1,2 +1,4 @@
 # 23810310265-PhamThiPhuong-BagistoHeadless
-<img width="663" height="355" alt="Screenshot 2026-04-03 at 22 29 35" src="https://github.com/user-attachments/assets/ee6b5a88-74d2-4c21-bf94-278cd2a844ab" />
+<img width="1919" height="793" alt="image" src="https://github.com/user-attachments/assets/54b4fc1f-fd0f-42f8-85a8-600b7c6b8943" />
+<img width="1913" height="1021" alt="image" src="https://github.com/user-attachments/assets/44d5b6e0-3f53-47ac-babf-31b0f2d2baae" />
+[Phạm Thị Phượng.mp4.zip](https://github.com/user-attachments/files/26467209/Ph.m.Th.Ph.ng.mp4.zip)
